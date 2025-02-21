@@ -1,2 +1,2 @@
-# JAMESTYHEAYHEA
+# JAMES Yeah Yeah
 James Hetfield
